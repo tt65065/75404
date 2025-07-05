@@ -19,4 +19,4 @@
 
 如果你厌倦了广告弹窗、假链接和等待加载的烦恼，欢迎收藏本站，我们始终坚持提供真正免费的日本AV免费在线观看体验。每天上线看看，总有惊喜在等你发现。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/75404 ）</span>
